@@ -45,7 +45,7 @@ habiendo trabajado en la banca, lo que me ha brindado una sólida comprensión d
 ---
 
 ## ⚡ Dato curioso:
-- Además de la tecnología, me gusta mantenerme activa yendo al gimnasio. Soy una ávida lectora, y mis libros favoritos tratan sobre ciencia, tecnología y psicología.
+- Además de la tecnología, me gusta el deporte y voy al gimnasio. Soy una ávida lectora, y mis libros favoritos tratan sobre ciencia, tecnología y psicología.
  Actualmente estoy leyendo a **Marian Rojas**. Me esfuerzo por ser un aporte positivo a la sociedad y siempre busco maneras de mejorar personalmente y ayudar a los demás.
 
 ---
