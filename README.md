@@ -40,7 +40,7 @@ habiendo trabajado en la banca, lo que me ha brindado una sólida comprensión d
 ---
 
 ## 😄 Pronombres: 
-- "Ella" Me gusta que me llamen **Cinti**
+- "Ella" **Cinti**
 
 ---
 
